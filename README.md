@@ -1,2 +1,6 @@
 # HarmonicsWay
-PDF Download of Harmonics Way
+PDF Download of the eBook The Harmonics Way
+
+This eBook is also available at:
+http://www.harmonicsway.com
+
